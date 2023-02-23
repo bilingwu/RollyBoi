@@ -1,6 +1,6 @@
 # Rolly Boi
 
-The thicc-est rolling ball you have ever seen in your life. 14 pain staking hours of pure procrastination fueled anixiety. Look how she rolls. mmm. 
+The thicc-est rolling ball you have ever seen in your life. 14 pain staking hours of pure procrastination fueled anxiety. Look how she rolls. mmm. 
 
 ## How to Run
 
